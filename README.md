@@ -1,5 +1,5 @@
 # 💫 About Me:
-M🤯Me apasiona desarrollar scripts y paginas webs🙂‍↕️
+🤯Me apasiona desarrollar scripts y paginas webs🙂‍↕️
 
 
 # 💻 Tech Stack:
